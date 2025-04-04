@@ -4,4 +4,4 @@ This is a systematic analysis and reflection on the Cultural Revolution, proposi
 
 hit: revolution, mass movement, cultural revolution, history, strategy, social sciences
 
-关键词：革命，群众运动，文革，历史，战略，社科
+关键词：革命，群众运动，文革，历史，策略，社科
